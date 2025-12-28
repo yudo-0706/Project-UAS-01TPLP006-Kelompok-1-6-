@@ -1,6 +1,6 @@
 KELOMPOK 3 (01TPLP006)
 
--Arlene Sunny Xavier
+-Arlene Sunny Xavier (Ketua)
 -Ignatius Tirta Darmawan
 -Reky Valentino
 -Siti Fatimah Azzahra
